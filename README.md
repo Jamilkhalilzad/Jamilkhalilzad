@@ -89,6 +89,15 @@ I welcome meaningful professional relationships, forward-thinking ideas, and opp
 
 ---
 
+## CONNECT | ارتباط و حضور آنلاین
+
+- [Personal Website](https://jamilkhalilzad.art.blog)
+- [Substack](https://open.substack.com/pub/jamilkhalilzad)
+- [Medium](https://medium.com/@jamilkhalilzad)
+- [X](https://x.com/jamil_khalilzad)
+
+---
+
 <div align="center">
 
 *Think Strategically. Innovate Purposefully. Create Lasting Value.*
